@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TarsemGill , till now i fully busy with my other work to run the daily life 
-- 👀 I’m interested in ... to learn html, css & Java and forwards to fllfil my dream.
+- 👀 I’m interested in ... to learn html, css & Java and forwards to fullfil my dream.
 - 🌱 I’m currently learning ...html basic now, aktuelly i start it for few days ago
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...still in waiting
